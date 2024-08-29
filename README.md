@@ -1,1 +1,1 @@
-# beautyzone
+# Beauty Zone
